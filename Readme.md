@@ -1,5 +1,5 @@
 Privacy Policy for Bundi Filter
-Effective Date: February 26, 2025
+Effective Date: March 7, 2025
 
 Introduction
 Bundi Filter (“we,” “us,” or “our”) respects your privacy. This Privacy Policy explains how we collect, use, and protect your personal information when you use our mobile application (“Bundi Filter”).
